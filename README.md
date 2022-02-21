@@ -7,7 +7,7 @@ Bonjour tout le monde (ou bonsoir selon l'heure à laquelle vous lisez ça), com
 - Je m'appelle **Raphaël Brillant**
 - J'ai **22 ans**, bientôt 23
 - J'habite à **Amiens** la fameuse ville oubliée entre Lille et Paris
-- J'ai un chat :smile_cat: et deux singes :see_no_evil: (*un petit frère et une petite soeur*)
+- J'ai un chat :smile_cat: et deux singes :monkey: (*un petit frère et une petite soeur*)
 - J'ai une licence en **biologie** mais les métiers de ce domaine ne m'attirent pas vraiment c'est pourquoi je me suis dirigé vers cette formation
 
 *Je ne vais pas détailler mon parcours scolaire ici ça risque d'être un peu long* :sleeping::sleeping::sleeping:
