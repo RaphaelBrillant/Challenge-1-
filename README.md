@@ -41,7 +41,7 @@ Bonjour tout le monde (ou bonsoir selon l'heure à laquelle vous lisez ça), com
 
 Si vous votez pour moi, ~~un virement Paypal sera effectué sur votre compte d'ici quelques jours~~ je vous représenterez du mieux possible et vous pourrez compter sur mes **4 années d'expériences** de délégué de classe (*bon oui j'étais au collège mais ça compte*) afin d'être le meilleur intermédiaire possible entre vous et la **team O'Clock** !
 
-N'hésitez pas à faire appel à moi si vous bloquez sur les challenges, il faut mettre un point d'honneur sur **l'entraide** et donc je me dois de donner l'exemple, mais au vu de la première journée passée ensemble je pense qu'il n'y aura pas de soucis à se faire là-dessus tout le monde a sa place dans cette formation et nous allons tous aller au bout en se serrant les coudes personne ne sera mis de côté ! (même si vous avez fait l'erreur de prendre la pilule bleue) *#CassiniRed*
+N'hésitez pas à faire appel à moi si vous bloquez sur les challenges, il faut mettre un point d'honneur sur **l'entraide** et donc je me dois de donner l'exemple, mais au vu de la première journée passée ensemble je pense qu'il n'y aura pas de soucis à se faire là-dessus tout le monde a sa place dans cette formation et nous allons tous aller au bout en se serrant les coudes personne ne sera mis de côté ! (même ceux qui ont fait l'erreur de prendre la pilule bleue) :red_circle:*#CassiniRed*:red_circle:
 
 Pour finir, il ne me reste plus que **deux choses** à dire :
 
